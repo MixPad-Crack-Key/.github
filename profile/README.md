@@ -1,4 +1,4 @@
-## MixPad Crack 13.00 + Registration Code 2025 [Latest
+## MixPad Crack 13.00 + Registration Code 2025 [Latest]
 
 MixPad is a studio-quality music mixing app that integrates with a variety of audio tools that, like this version of MixPad Music Mixer, are free for non-commercial use.
 It differs from the usual mixing software in that it doesn't try to look like a studio console but rather uses an easy-to-understand, drag-and-drop layout that takes its visual cues from Explorer and Office. 
